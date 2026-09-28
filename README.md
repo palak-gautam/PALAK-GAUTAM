@@ -66,15 +66,6 @@ SRM Institute of Science and Technology · Expected 2027
 
 ---
 
-## Beyond Technology
-
-**Classical Music** · Trained Classical Singer
-**Dance** · Performing Arts
-**Sports** · Active participation and interest
-**Campus Engagement** · Presentations, college events, and technical activities
-
----
-
 ## Connect
 
 **LinkedIn:** [Palak Gautam]
